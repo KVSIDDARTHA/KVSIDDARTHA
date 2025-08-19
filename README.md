@@ -5,7 +5,7 @@
 ## 🌐 Socials:
 📧 Email: venkatsiddarth85@gmail.com  
 💼 LinkedIn: www.linkedin.com/in/koneru-venkata-siddartha-66698a27b 
-🐙 GitHub: https://github.com/7672078534
+🐙 GitHub: https://github.com/KVSIDDARTHA
 
 
 
